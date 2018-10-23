@@ -14,7 +14,7 @@ Where will I take this experience? The easier question is where wouldn't I take 
 
 ***I'm planning to go to colleges like***
 1. UNT
-2.TCU
+2.TCU 
 3. A&M
 Those are just my top 3,but I'm planning to get a scholarship for maybe baseball or if I really try academics.
 I've thought about designing video games but I'm not sure at the same time, not only that but also a lawyer, I want to go to law school and pursue a career of law. I'm personally thinking of an idea at the moment that could most likely change the world, because I get older I wanna be remembered as someone that did something major for this world and changed it in a matter of days,weeks,months,years.
