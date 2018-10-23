@@ -1,5 +1,6 @@
 <h1>Who am I?</h1>
 My name is Valentin Martinez Huerta, I am 16 years of age and was born on August 4th, 2002. I am a junior in Franklin Delano Roosevelt High School. There's two types of categories in Roosevelt and that's the comprehensive side and collegiate side, I'm in the H-Tech Collegiate Early College side pursuing my Associates Degree.
+[myimage]: relative/urls/cool/image.jpg
 
 To start off my life, Rodolfo my dads name and Valentina my moms name ended up having 7 kids including me. The order of kids from oldest to youngest is Miguel,Yesenia,Rodolfo,Virginia,Agustin,Me, and Monica. So far I'm enjoying my high school years, I also do extra curricular activities like soccer,band, and baseball. I mostly enjoy sports like baseball I'm playing on the Varsity Team, all of outfield and in band i play the trumpet. I'm a real sarcastic person but in a funny way not the rude type, whenever I'm in a uncomfortable situation I tend to act very awkward and make really bad corny jokes. Other than that I'm a very optimistic person and by that I mean exactly what I mean, I always try to find the bright side of things and other than that I see myself as a leader and a person that leads people into the correct path way.
 
