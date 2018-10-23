@@ -12,7 +12,7 @@ Good Education
 ###Where will you take this experience?###
 Where will I take this experience? The easier question is where wouldn't I take it? Now in this type a world we're advancing more and more on technology. Soon this world will all be technology and that's inevitable, moral of the story is that it will be around for quite a long time. I personally took I.T because I'm always hearing how these people get paid around $2000 for a site when it only takes the person making it a couple of hours. I'm planning to continue I.T in college but obviously another major too, because it does take a lot of hard work and dedication to this type of work.
 
-****I'm planning to go to colleges like***
+***I'm planning to go to colleges like***
 1. UNT
 2.TCU
 3. A&M
